@@ -10,7 +10,9 @@
 
 <sup> [PT Awards](https://github.com/pt-awards) as an OG ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [PT Players](https://github.com/pt-players) as a Well known. </sup>
 
-<sup> Thank you for adding me in. I've changed my user around a few times, but it's still nice knowing I've been up here for quite a while. Nevertheless, I really appreciate that I'm noticed. Thanks again PT Awards team, keep your work up. </sup>
+━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
+
+<sup> BFYI, I must know your age range before I decide being friends with you, this is my only boundary. I don't want any close friends who are under 18, and I don't tolerate liars either. I prefer only friends that I can bond with who are over 18 as I am 20 years old. If you lie to me to get close to me, I will block you. Please respect this. </sup>
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 <div align="center">
