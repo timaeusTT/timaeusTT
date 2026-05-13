@@ -12,7 +12,7 @@
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 
-<sup> BFYI, I must know your age range before I decide being friends with you, this is my only boundary. I don't want any close friends who are under 18, and I don't tolerate liars either. I prefer only friends that I can bond with who are over 18 as I am 20 years old. If you lie to me to get close to me, I will block you. Please respect this. </sup>
+<sup> BFYI, I must know your age range before I decide being friends with you, this is my only boundary. I don't want any close friends who are under 18, and I don't tolerate liars either. I only prefer friends that I can bond with who are over 18 as I am 20 years old. If you lie to me to get close to me, I will block you. Please respect this. </sup>
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 <div align="center">
