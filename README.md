@@ -4,7 +4,7 @@
   
 <sup> ___Special mentions.___ </sup>
 
-<sup> [Compass/Jake. ♡](https://github.com/uItdirk)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Cathy.](https://github.com/HardRockWitch)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Doom.](https://github.com/dummyinbed)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Dice.](https://github.com/SpaceKn1ghts)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Soldier.](https://github.com/iTrapped2012) ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [My children. (unlisted)](https://github.com/timaeusTT) </sup>
+<sup> [Compass/Jake. ♡](https://github.com/uItdirk)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Cathy.](https://github.com/HardRockWitch)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Doom.](https://github.com/dummyinbed)‎‎ ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [Dice.](https://github.com/SpaceKn1ghts) ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [My children. (unlisted)](https://github.com/timaeusTT) </sup>
 
 <sup> Want to be added? Ask, I might decline politely if we don't know each other well. Don't take it personally, I love \*all\* my friends dearly. </sup>
 
