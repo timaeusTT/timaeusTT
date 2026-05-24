@@ -12,7 +12,7 @@
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 
-<sup> BFYI, I must know your age range before I decide being friends with you, this is my only boundary. I don't want any close friends who are under 18, and I don't tolerate liars either. I only prefer friends that I can bond with who are over 18 as I am 20 years old. If you lie to me to get close to me, I will block you. Please respect this. </sup>
+<sup> BFYI, I must know your age range before I become friends with you. This is so I know who I'm talking to and interacting with: your comfort is my responsibility as an adult. Those who are younger than 18 must not talk to me in an inappropriate matter, otherwise they will get blocked. People lying about their age to get closer to me will get blocked as well. I prefer having best/close friends to those over 18 for my own comfort as well, but I don't mind being friends with just anybody! Please don't be weird to me. </sup>
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 <div align="center">
