@@ -8,7 +8,7 @@
 
 <sup> Want to be added? Ask, I might decline politely if we don't know each other well. Don't take it personally, I love \*all\* my friends dearly. </sup>
 
-<sup> [PT Awards](https://github.com/pt-awards) as an OG ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [PT Players](https://github.com/pt-players) as a Well known. </sup>
+<sup> [PT Awards](https://github.com/pt-awards) as an OG. ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [PT Players](https://github.com/pt-players) as a Well known. ‎‎ ‎‎ .⋆.‎‎ ‎‎ ‎‎ [PT Stars](https://github.com/pt-stars) as a Pretty Skin. </sup>
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
 
