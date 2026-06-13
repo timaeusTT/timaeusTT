@@ -30,5 +30,3 @@
 <sup> I am thinking of opening Pony skin trading. Let me know if you are interested. I also make MC skins, though I think I am not very good at it. </sup>
 
 ━━━━═════════════════════════════════⊱⋆⊰════════════════════════════════━━━━
-
-<sup> spreadinga awraeness [cancel dirkhal rn](https://rentry.co/canceldirkhal) please. For all lgal resasons jthis is a jioke </sup>
