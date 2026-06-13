@@ -23,7 +23,7 @@
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Courier+Prime&size=12&duration=3400&pause=600&color=F2A400&center=true&width=435&height=20&lines=Tell+me+something.;Tell+me+anything%2C+just+say+my;Name+is+stumbling.;Words+are+caught%2C+like+flies+and+leapers%2C;I+know+something.;My+best+friend's+name+is+The+Reaper.;Take+it+from+him%2C;All+he+says%2C+he+always+lingers.;Better+off%2C+I'm+dead+now%2C+get+it+off+my+chest+now.;Every+step+I+take%2C+another+way+to+lay+to+rest.;+How+bitter+of+me+lately%2C+I+just+wish+he'd+take+me.;Summer's+always+awful%2C+winter+is+the+one+that+breaks+me;Down%2C;Down%2C+down%2C+down.;(And+I+know+I+will+stay.);Down.+Down%2C+down%2C+down.;(And+I+know+I+will+break.);+)](https://git.io/typing-svg)
 
-<sup> [**ATABOOK**](https://dirkpool.atabook.org) ⋆ [**STRAWPAGE**](https://artesto.straw.page) ⋆ [**RENTRY**](https://rentry.co/artesto) ⋆ [**PRONOUNS**](https://pronouns.cc/@artesto)</sup>
+<sup> [**ATABOOK**](https://dirkpool.atabook.org) ⋆ [**STRAWPAGE**](https://artesto.straw.page) ⋆ [**FLUFFLE**](https://fluffle.cc/seils) ⋆ [**PRONOUNS**](https://pronouns.cc/@artesto)</sup>
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=f2n6prthunxkl481yp07tfdlz&cover_image=true&theme=natemoo-re&show_offline=false&background_color=121212&interchange=false&bar_color=f2a400&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
