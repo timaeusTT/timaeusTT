@@ -1,6 +1,6 @@
 <div align="center">
 
-<img src="https://cdn.imgchest.com/files/92fbcbe5300b.png" align="left" width="415px">
+<img src="https://cdn.imgchest.com/files/92fbcbe5300b.png" align="left" width="315px">
 
 <img src="https://deltarune.wiki/images/thumb/Shadowguy_overworld_jumping.gif/85px-Shadowguy_overworld_jumping.gif.webp?cb=5e5dsr&h=thumb.php&f=Shadowguy_overworld_jumping.gif" width="35px"> ![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=925283&label=I_<3_TV!) <img src="https://deltarune.wiki/images/Shadowguy_battle_saxophone.gif?cb=eayq1o&h=thumb.php&f=Shadowguy_battle_saxophone.gif" width="40px">
 
