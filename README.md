@@ -40,6 +40,7 @@
 | ${{\color{#925283} you \space must \space let \space me \space know \space if \space you're \space a \space minor \space so \space i'm \space aware, \space that \space is \space my \space only \space boundary \space before \space you \space decide \space to \space be \space friends \space with \space me!}}$ |
 |------------------------------|
 | ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ  ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ  ${{\color{#925283} i \space also \space prefer \space close \space friends \space over \space 18, \space thank \space you!}}$ |
+| ${{\color{#572b72}   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ   ㅤ  ㅤ P.S!!! \space i'm \space a \space touch \space comfort! \space please \space cuddle \space with \space us \space i'd \space really \space appreciate \space it!!!}}$ |
 </details>
 
 <img src="https://cdn.imgchest.com/files/8078b62ad76b.png" width="820px">
