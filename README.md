@@ -1,5 +1,7 @@
 <div align="center">
 
+[Please read this Google Document to be aware. Copytown is real, and it may have your ponies on their database as well.](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?tab=t.0#heading=h.2ruqj9cj7dwn)
+
 <img src="https://cdn.imgchest.com/files/92fbcbe5300b.png" align="left" width="305px">
 
 <img src="https://deltarune.wiki/images/thumb/Shadowguy_overworld_jumping.gif/85px-Shadowguy_overworld_jumping.gif.webp?cb=5e5dsr&h=thumb.php&f=Shadowguy_overworld_jumping.gif" width="35px"> ![](https://komarev.com/ghpvc/?username=THATGREATDAY&color=925283&label=I_<3_TV!) <img src="https://deltarune.wiki/images/Shadowguy_battle_saxophone.gif?cb=eayq1o&h=thumb.php&f=Shadowguy_battle_saxophone.gif" width="40px">
